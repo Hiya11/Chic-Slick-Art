@@ -3,7 +3,7 @@
 WHAT IS CHIC SLICK ART ???
 Chic Slick Art is a app which provides videos and study material online for different courses related to fashion design streams.
   
-ALL ABOUT OUR COURSE AND FEE STRUCTURE :-
+ALL ABOUT OUR COURSE AND FEE STRUCTURE :- 
 
 
 
